@@ -1,0 +1,1 @@
+RedőnyReady dev started 2023.09.09
